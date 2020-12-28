@@ -4,17 +4,17 @@ title: Honors&Awards
 
 ---
 
-* Research proposal recieved (USD $1,500) grant from the University of Minnesota Office's of Undergraduate Research on Dec 16th, 2020. [👏]()
+* Research proposal recieved (USD $1,500) grant from the University of Minnesota Office's of Undergraduate Research on Dec 16th, 2020. [👏](assets/img/UROP award letterhead.pdf)
 
-* Awarded Maroon Global Excellence Scholarship (USD $15,000) from Fall 2018 to Fall 2021. [📄]()
+* Awarded Maroon Global Excellence Scholarship (USD $15,000) from Fall 2018 to Fall 2021. [📄](assets/img/Maroon Global Excellence Scholarship.pdf)
 
 * Dean’s List of College of Library Art at the University of Minnesota from Spring 2019 to Present. 
 
 * Vice president Candidate of Tau Sigma National Honor Society Uni. of Minnesota - Twin Cities Chapter in Fall 2020.
 
-* Membership of Tau Sigma National Honor Society Uni. of Minnesota - Twin Cities Chapter from Spring 2019 to Present. 📄
+* Membership of Tau Sigma National Honor Society Uni. of Minnesota - Twin Cities Chapter from Spring 2019 to Present. [📄](assets/img/tau sigma.JPG)
 
-* 2nd Place in National Collegiate DanceSport Championships, Amateur Collegiate Championship International Latin Dance J/C/R in Chicago in Spring 2019. 📄
+* 2nd Place in National Collegiate DanceSport Championships, Amateur Collegiate Championship International Latin Dance J/C/R in Chicago in Spring 2019. 
 
 * 2nd Place in Dance Fest, Cody Arndston Amateur Silver International Latin S/C/R in Minneapolis in Spring 2019. 
 
